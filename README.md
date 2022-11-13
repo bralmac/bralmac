@@ -2,7 +2,7 @@
 
 **`Lifelong learner and problem-solver`**
 
-10+ years as a problem-solver and technology . I am an aspiring developer and engineer, always challenging myself to learn more tools and technologies to improve my own skills and understanding, as well as share that knowledge with my peers and customers that I support.
+10+ years as a problem-solver and technology evangelist. I am an aspiring developer and engineer, always challenging myself to learn more tools and technologies to improve my own skills and understanding, as well as share that knowledge with my peers and customers that I support.
 I've been computer enthusiast ever since getting to use my first 386 computer at home as a kid and love getting to learn more and continue to share that passion and knowledge with others!
 
 ---
